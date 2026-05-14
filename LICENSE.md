@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Bitwarden for macOS addon with advanced Bitwarden for macOS Addon | password-audit + firewall-protection. Featuring password-audit and firewall-protection, it's
 
 
 
